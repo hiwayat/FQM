@@ -1,0 +1,1 @@
+Discount has been claimed. Enjoy your 25% discount !
